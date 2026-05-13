@@ -1,2 +1,0 @@
-# Maddisaez
-Jokua mdstaly
